@@ -10,11 +10,5 @@ Published as: Bentley, R. F., Collins, R. A., & Genner, M. J. (2026). Evolutiona
 
 ***
 
-File: 
+File: Bentley 2025 Supplementary tables 28 feb 2025.xlsx
 
-
-**Scripts**
-
-***
-
-File: 
